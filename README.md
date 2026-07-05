@@ -1,2 +1,0 @@
-# auto-agarre
-ese we
